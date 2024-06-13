@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @armin82004
+- 👀 I’m interested in linux,tech,science,.....
+- 🌱 I’m currently learning Front-End Devoloping
+- 📫 How to reach me armin82004@gmail.com  
+- 😄 Pronouns: Happy Guy
